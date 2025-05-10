@@ -5,7 +5,7 @@
 
 - 👨‍💻 Visite o meu portifolio [.](.)
 
-- 💬 Me pergunte sobre **Jesus**
+- 💬 Me pergunte sobre **Jesus e temas diversos, como política, religião e sociedade. Acredito que pensamento crítico e troca de ideias podem impulsionar inovação e crescimento."**
 
 - 📫 Como entrar em contato comigo **carroandrade139@gmail.com**
 
