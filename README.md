@@ -11,7 +11,7 @@
 
 - 📄 Aqui estão as minhas experiencias [.](.)
 
-- ⚡ Curiosidades sobre mim **Gosto de esportes como futebol, muay thai.**
+- ⚡ Curiosidades sobre mim **Gosto de esportes como futebol, muay thai e musculação, que me ajudam a desenvolver disciplina, resiliência e foco.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
