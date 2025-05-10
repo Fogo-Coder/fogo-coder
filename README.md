@@ -1,4 +1,4 @@
-<h1 align="center">Ola👋, me chamo Daniel C Andrade</h1>
+<h1 align="center">Ola👋,  eu me chamo Daniel C Andrade</h1>
 <h3 align="center">💡 Sou um estudante entusiasta da programação, em constante aprendizado e aprimoramento para criar soluções inovadoras.</h3>
 
 - 🌱 Atualmente estou estudando **Java, react**
